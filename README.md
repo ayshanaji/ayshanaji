@@ -7,5 +7,5 @@
 * # Connect with me  
 * Yahoo:  **aysha_naji@yahoo.com**
 * Gmail:  **ayshamoossa27@gmail.com**
-* LinkedIn   **https://www.linkedin.com/in/ayisha-najeeha-26380a46/
+* LinkedIn   https://www.linkedin.com/in/ayisha-najeeha-26380a46/
 * This Platform helps to upload all my works 💞️ 💞️
