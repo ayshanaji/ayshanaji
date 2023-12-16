@@ -1,4 +1,5 @@
 ### Hi,👋   I’m Ayisha Najeeha. Welcome to my Github Page 
+* Currently doing Masters in DataScience - Thesis based from Thompson Rivers University, BC,Canada  
 * I completed my Masters in Statistics in the year 2009 from **Farook College, Calicut**. I was the **Second Rank holder** of Calicut University.
 * I’m interested in learning new things and share my knowledge with those around me. 
 * I worked for 10 years in offcampus colleges in **Abu Dhabi , United Arab Emirates** on part time basis teaching **Statistics** for students of B.Com and BBA. 
